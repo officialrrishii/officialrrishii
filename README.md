@@ -4,7 +4,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=officialrrishii&label=Profile%20views&color=0e75b6&style=flat" alt="officialrrishii" /> </p>
 
-- 🌱 I’m currently learning **Information Technology.**
+- 🌱 I’m currently learning **Working on Collage Website.**
 
 - 👨‍💻 All of my projects are available at [https://github.com/officialrrishii?tab=repositories](https://github.com/officialrrishii?tab=repositories)
 
