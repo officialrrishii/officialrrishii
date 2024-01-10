@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **officialrrishii25@gmail.com**
 
-- ⚡ Fun fact **i'm workoholic.**
+- ⚡ Fun fact **laugh in every situation.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
